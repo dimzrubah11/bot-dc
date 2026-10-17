@@ -1,0 +1,2 @@
+# bot-dc
+JUST FUN BRO DONT ANGRY WKKW
